@@ -1,6 +1,6 @@
 Siddharth Mundra - CV
 =====================
-**Email**: mundrasiddharth1994@gmail.com |  **Nationality**: Indian  | ** DOB**: 29th June 1994
+**Email**: mundrasiddharth1994@gmail.com |  **Nationality**: Indian  | **DOB**: 29th June 1994
 
 Academic Qualifications
 ----------------------
